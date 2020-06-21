@@ -7,4 +7,6 @@ Kierkegaard was born to an affluent family in Copenhagen. His mother, Ane Søren
 * USA
 * Europa
 
+> Peter
+
 <img src="https://images.app.goo.gl/hjJkVzBhkfwkwtr59"/>
